@@ -1,3 +1,1 @@
-Hi kid
-T noprosr
-#Warsky
+Starter(Newbie)
